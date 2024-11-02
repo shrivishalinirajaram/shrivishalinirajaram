@@ -7,7 +7,7 @@
 
 ---
 ### Who am I?
-PhD Candidate in Interdisciplinary Graduate Program in Human Toxicology | Computational Biologist | Science Communicator
+PhD Candidate in Interdisciplinary Graduate Program in Human Toxicology | Researching on Oral Microbiome (focused on dental caries) | Computational Biologist | Science Communicator
 
 ---
 
